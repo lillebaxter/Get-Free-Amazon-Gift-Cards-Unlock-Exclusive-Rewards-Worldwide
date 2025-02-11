@@ -31,9 +31,13 @@ Why Choose Amazon Gift Cards?
 How to Redeem an Amazon Gift Card?
 
 1️⃣ Log in to your Amazon account.
+
 2️⃣ Go to the Gift Card section.
+
 3️⃣ Enter your Amazon Gift Card Code.
+
 4️⃣ Click Redeem, and the amount will be added to your account balance.
+
 5️⃣ Start shopping and enjoy free purchases!
 
 Start Earning Your Free Amazon Gift Cards Today!
